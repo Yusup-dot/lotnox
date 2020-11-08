@@ -1,0 +1,2 @@
+# lotnox
+Selamat datang bos
